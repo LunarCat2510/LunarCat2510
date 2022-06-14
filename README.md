@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LunarCat2510
+- 👀 I’m interested in hacking and coding
+- 🌱 I’m currently learning alot of different things
+- 💞️ I’m looking to collaborate on nothing really i like to go it solo
+- 📫 How to reach me pls dont if not nessiseriy 
+- 😁 was hoping to make friends
